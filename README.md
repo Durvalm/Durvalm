@@ -1,4 +1,4 @@
-### Hi there 👋 my name is Durval
+### Hi there my name is Durval
 
 
 - 🔭 I’m currently working on (looking for a job)
